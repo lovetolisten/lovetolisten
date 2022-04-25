@@ -5,7 +5,7 @@
 #metaversecoaching #virtualrealitycoaching #spatial #oculusquest #piconeo
 
 Ready to change?
-Werde dei*e eigene*r Life-Designer*in!
+Werde dein*e eigene*r Life-Designer*in!
 #getyoursh*tdone #unf*ckyourlife
 
 <!---
